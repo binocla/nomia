@@ -1,0 +1,1 @@
+**https://nomia2.notion.site/2-Backend-developer-804cfb616b914788a640d107fb2853c8**
